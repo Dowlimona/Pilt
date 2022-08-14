@@ -1,2 +1,0 @@
-# Pilt
-Didt
